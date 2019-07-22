@@ -1,2 +1,0 @@
-# Practice-CV
-Practice CV
